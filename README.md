@@ -1,0 +1,2 @@
+# FREE-IT-ASSIST
+With our experience in computer repair and data recovery, and a love for all things geek, we are your solution to all your tech problems. Home &amp; small business networking, computer repairs, back up, data recovery. Whatever your tech issue is, we've got you covered.  ​  We know how intimidating your computer can be, so let us help. Why spend your day trying to solve your tech problems when the TECH TEAM can get you up and running in no time. Book a time and let us do the work so you can sit back and enjoy.
